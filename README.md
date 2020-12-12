@@ -3,3 +3,11 @@
 ![sc](https://user-images.githubusercontent.com/44163590/100872148-094c1d80-34aa-11eb-9503-e600a6f7e2ae.PNG)
 
 ![pexels-kaboompics-com-6267](https://user-images.githubusercontent.com/44163590/101977309-705d9500-3c55-11eb-80aa-9a7725ec27b3.jpg) [Photo by Kaboompics .com from Pexels]
+
+
+
+![pexels-life-of-pix-67468](https://user-images.githubusercontent.com/44163590/101977352-b7e42100-3c55-11eb-9ee4-5b74fba0c79c.jpg) [Photo by Life Of Pix from Pexels]
+
+
+
+![pexels-igor-starkov-1307698](https://user-images.githubusercontent.com/44163590/101977401-f974cc00-3c55-11eb-8109-e55a8e1b028a.jpg) [Photo by Igor Starkov from Pexels]
